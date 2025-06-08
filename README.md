@@ -2,7 +2,7 @@
 
 # Declan Mayo
 
-### 🌱 Data Analyst | Full Stack Developer 🌱
+### 🌱 IT Systems Analyst 🌱
 
 <br>
 
